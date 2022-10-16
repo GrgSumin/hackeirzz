@@ -3,3 +3,5 @@
 naruto
 
 itadori
+
+Waku Waku
