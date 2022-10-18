@@ -7,3 +7,4 @@ itadori
 Waku Waku
 
 moh salah
+ tai sala
