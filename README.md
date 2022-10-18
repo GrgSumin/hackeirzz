@@ -9,3 +9,4 @@ Waku Waku
 moh salah
  tai sala
 as
+was
