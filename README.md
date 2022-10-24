@@ -10,4 +10,5 @@ moh salah
  tai sala
 as
 
-Spy X Family
+Spy X Fami
+Ryōiki Tenkai
