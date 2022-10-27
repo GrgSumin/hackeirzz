@@ -14,3 +14,4 @@ Spy X Fami
 Ryōiki Tenkai
 One Piece
 Aparabhasit
+wai wai
